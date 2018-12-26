@@ -6,7 +6,7 @@
 ### 성격 : 조용함
 ### 좋아하는 것 : 와퍼, 치킨(푸라닭)
 #### 연말에 하고 싶은 것 : 메가박스에서 콜드플레이 보기
-![screensh](http://img.hani.co.kr/imgdb/resize/2017/0319/00501616_20170319.JPG)
+![heeyun](https://user-images.githubusercontent.com/45776030/50433531-253d0100-091c-11e9-880e-f8809b8d7165.jpg)
 ---
 # 김슬기
 ### 별명 : 슬기로운생활
