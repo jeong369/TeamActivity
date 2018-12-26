@@ -19,9 +19,9 @@
 ---
 ![heeyun](https://user-images.githubusercontent.com/45776030/50434021-05f3a300-091f-11e9-83dc-d03552f0f62a.jpg)
 ## 김희윤
-#### 별명 : 위'大'하다 -- 
+#### 별명 : ? 
 #### 성격 : 차분함
-#### 좋아하는 것 : 밤(먹는), 
+#### 좋아하는 것 : 밤, 버섯, 
 ##### 연말에 하고 싶은 것 : 전기장판 위에서 따끈따끈하게 구워지기
 ---
 ![sungmin](https://user-images.githubusercontent.com/45776030/50434042-21f74480-091f-11e9-8536-8e95cb0ccbf1.jpg)
