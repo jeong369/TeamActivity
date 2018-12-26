@@ -1,5 +1,5 @@
 ---
-# 뉴 밸런스 
+# 뉴 밸런스 ![photo_2018-12-26_14-46-04](https://user-images.githubusercontent.com/45776030/50435274-e01ccd00-0923-11e9-8ec3-84ea713bf6ed.jpg)
 ---
 ![byeongseok](https://user-images.githubusercontent.com/45776030/50434026-0e4bde00-091f-11e9-97d4-f5ad0c3a1c63.jpg)
 ## 고병석
