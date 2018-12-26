@@ -6,7 +6,7 @@
 ### 성격 : 조용함
 ### 좋아하는 것 : 와퍼, 치킨(푸라닭)
 #### 연말에 하고 싶은 것 : 메가박스에서 콜드플레이 보기
-![byeongseok](https://user-images.githubusercontent.com/45776030/50433627-b57b4600-091c-11e9-8a23-1c20184e4e4b.jpg){width="100" height="100"}
+![byeongseok-50px](https://user-images.githubusercontent.com/45776030/50433627-b57b4600-091c-11e9-8a23-1c20184e4e4b.jpg)
 ---
 # 김슬기
 ### 별명 : 슬기로운생활
