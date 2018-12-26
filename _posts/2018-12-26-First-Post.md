@@ -1,7 +1,7 @@
 ---
 title: 뉴 밸런스
 ---
-![photo_2018-12-26_14-46-04](https://user-images.githubusercontent.com/45933728/50433675-fd01d200-091c-11e9-82c2-11c71f9b50c1.jpg)
+![photo_2018-12-26_15-33-08](https://user-images.githubusercontent.com/45933728/50435291-f2970680-0923-11e9-85ca-e76fca273372.jpg)
 
 # 우리 팀
 
