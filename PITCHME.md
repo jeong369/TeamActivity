@@ -1,5 +1,5 @@
 ---
-# 뉴 밸런스 ![photo_2018-12-26_14-46-04](https://user-images.githubusercontent.com/45776030/50435093-39d0c780-0923-11e9-9c1c-28da025be3bf.jpg)
+# 뉴 밸런스 
 ---
 ![byeongseok](https://user-images.githubusercontent.com/45776030/50434026-0e4bde00-091f-11e9-97d4-f5ad0c3a1c63.jpg)
 ## 고병석
@@ -14,7 +14,7 @@
 #### 별명 : 슬기로운생활
 #### 성격 : 낙천적, 긍정적
 #### 좋아하는 것 : 스포츠 관람 
-##### 연말에 하고 싶은 것 : '친구'들과 한 해 마무리하는 술자리, 
+##### 연말에 하고 싶은 것 : '친구'들과 한 해 마무리하는 술자리 
 > (친구모집) 010-7497-2174
 ---
 ![heeyun](https://user-images.githubusercontent.com/45776030/50434021-05f3a300-091f-11e9-83dc-d03552f0f62a.jpg)
