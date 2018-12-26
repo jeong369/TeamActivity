@@ -34,7 +34,7 @@
 #### 성격 : Too much talker
 #### 좋아하는 것 : 만두
 ##### 연말에 하고 싶은 것 : TV로 연말시상식 보면서 가족들과 술자리 가지기
-![minji](https://user-images.githubusercontent.com/45776030/50433939-9f6e8500-091e-11e9-9933-dbb209ee5a75.JPG)
+![minji](https://user-images.githubusercontent.com/45776030/50433971-c2009e00-091e-11e9-8d8f-01f32c6b7f44.JPG)
 ---
 ## 조인정
 #### 별명 : 만찐두빵
