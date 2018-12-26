@@ -13,33 +13,33 @@
 #### 성격 : 낙천적, 긍정적
 #### 좋아하는 것 : 스포츠 관람 
 ##### 연말에 하고 싶은 것 : '친구'들과 한 해 마무리하는 술자리
-![seulgi](https://user-images.githubusercontent.com/45776030/50433608-98df0e00-091c-11e9-9b0a-0b0f3d632155.jpg)
+![seulgi](https://user-images.githubusercontent.com/45776030/50433946-a6959300-091e-11e9-9b47-2d7d894c01d6.jpg)
 ---
 ## 김희윤
 #### 별명 : 위'大'하다 -- 
 #### 성격 : 차분함
 #### 좋아하는 것 : 밤(먹는)
 ##### 연말에 하고 싶은 것 : 전기장판 위에서 따끈따끈하게 구워지기
-![heeyun](https://user-images.githubusercontent.com/45776030/50433531-253d0100-091c-11e9-880e-f8809b8d7165.jpg)
+![heeyun](https://user-images.githubusercontent.com/45776030/50433921-91206900-091e-11e9-9330-043db08ff1ca.jpg)
 ---
 ## 박성민
 #### 별명 : 퍼펭 반장
 #### 성격 : 원만함
 #### 좋아하는 것 : 펭귄
 ##### 연말에 하고 싶은 것 : 부산에 조카보러 가기
-![sungmin](https://user-images.githubusercontent.com/45776030/50433604-9086d300-091c-11e9-83c9-0090c7959f37.jpg)
+![sungmin](https://user-images.githubusercontent.com/45776030/50433956-ac8b7400-091e-11e9-9fdd-06090b236458.jpg)
 ---
 ## 이민지
 #### 별명 : 박찬호
 #### 성격 : Too much talker
 #### 좋아하는 것 : 만두
 ##### 연말에 하고 싶은 것 : TV로 연말시상식 보면서 가족들과 술자리 가지기
-![minji](https://user-images.githubusercontent.com/45776030/50433582-73520480-091c-11e9-9b4d-a0dd368d1290.JPG)
+![minji](https://user-images.githubusercontent.com/45776030/50433939-9f6e8500-091e-11e9-9933-dbb209ee5a75.JPG)
 ---
 ## 조인정
 #### 별명 : 만찐두빵
 #### 성격 : 활발랄 
 #### 좋아하는 것 : 달달한 것 
 ##### 연말에 하고 싶은 것 : 집에서 하루종일 아무것도 하지 않기
-![injeong](https://user-images.githubusercontent.com/45776030/50433567-5fa69e00-091c-11e9-86bc-b3c7ad1f51bd.jpg)
+![injeong](https://user-images.githubusercontent.com/45776030/50433928-97aee080-091e-11e9-92fb-3b27c10e1033.jpg)
 
