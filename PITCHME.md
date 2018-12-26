@@ -1,7 +1,8 @@
 ---
 # 뉴 밸런스
 ---
-## 고병석 ![byeongseok](https://user-images.githubusercontent.com/45776030/50434026-0e4bde00-091f-11e9-97d4-f5ad0c3a1c63.jpg)
+![byeongseok](https://user-images.githubusercontent.com/45776030/50434026-0e4bde00-091f-11e9-97d4-f5ad0c3a1c63.jpg)
+## 고병석
 #### 별명 : 감바스
 #### 성격 : 조용함
 #### 좋아하는 것 : 와퍼, 치킨(푸라닭)
